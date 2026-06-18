@@ -4,7 +4,6 @@
 
 📍 Chattogram, Bangladesh
 📧 [contact.antubiswas@gmail.com](mailto:contact.antubiswas@gmail.com)
-📱 +880 1628-989530
 🔗 LinkedIn: linkedin.com/in/antu-biswas-contact
 
 ---
